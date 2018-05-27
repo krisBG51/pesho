@@ -1,5 +1,1 @@
-# pesho she prudna i az
-
-
-qde mi se oriz
-
+sera v kofa     i pikam v mifka
